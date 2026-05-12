@@ -1,4 +1,4 @@
-# 
+# Get the ultimate JetBrains Rider for PC | JetBrains Rider for Windows script with vip JetBrains Rider for PC | JetBrains Rider for Windows Script | cloud-integration + debugger.
 
 
 
